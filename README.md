@@ -1,1 +1,1 @@
-https://aurifyae.github.io/Zehora-Gold/
+https://aurifyae.github.io/TAZA-GOLD/
